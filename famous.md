@@ -1,0 +1,18 @@
+# David Bowie
+
+![image](https://konstguiden.com/media/vhwhwmia/bowie_980.jpg)
+
+<p>David Bowie, właśc. David Robert Jones (ur. 8 stycznia 1947 w Londynie, zm. 10 stycznia 2016 w Nowym Jorku[4]) – brytyjski piosenkarz, kompozytor, autor tekstów, multiinstrumentalista, producent muzyczny i aranżer, a także aktor, malarz i kolekcjoner sztuki[5].
+Przyjął pseudonim artystyczny David Bowie, aby nie mylono go z wokalistą zespołu The Monkees o nazwisku Davy Jones.</p>
+<p>Działalność w przemyśle muzycznym rozpoczął w 1962[6] i kontynuował do śmierci w 2016. Był główną postacią w muzyce popularnej przez ponad cztery dekady i był znany jako innowator, zwłaszcza w latach 70. XX wieku. Zyskał międzynarodową sławę dzięki charakterystycznemu barytonowi, eklektyzmowi pracy, głębi intelektualnej, a także opanowaniu gry na ponad trzynastu instrumentach[2]. Oprócz swoich umiejętności muzycznych jest uznawany za symbol androgynicznego piękna, który był charakterystycznym elementem jego wizerunku, zwłaszcza w latach 70. i 80. XX wieku. Przeszedł do historii jako jeden z artystów rockowych z największą liczbą sprzedanych albumów w dziejach – łączny nakład ze sprzedaży wszystkich jego płyt wyniósł 140 mln egzemplarzy na całym świecie[7][8][9]. Jako producent muzyczny pracował z artystami, takimi jak m.in. Lou Reed, Iggy Pop czy The Stooges</p>
+<p>W 1996 został umieszczony w Rock and Roll Hall of Fame[10]. W 2002 zajął 29. miejsce na liście 100 najwybitniejszych Brytyjczyków według BBC. W 2004 zajął 39. miejsce na liście 100 najwybitniejszych artystów muzycznych wszech czasów i 23. miejsce na liście najlepszych piosenkarzy wszech czasów; obie zestawienia sporządziła redakcja magazynu „Rolling Stone”[11][12]. W 2006 zajął 64. miejsce na liście 100 najlepszych metalowych wokalistów wszech czasów według „Hit Parader”. W 2011 jego utwór „Heroes” zajął 46. miejsce na liście 500 najlepszych piosenek w historii muzyki według „Rolling Stone”.</p> 
+
+## Timeline
+
+<ol>
+<li>Lata 60.</li>
+<li> Lata 70 </li>
+<li><a href="https://en.wikipedia.org/wiki/Berlin_Trilogy">Trylogia Berlińska</a></li>
+<li> XXI wiek </li>
+<li><a href="https://pl.wikipedia.org/wiki/Blackstar_(album_Davida_Bowiego)">Śmierć</a></li>
+</ol>
